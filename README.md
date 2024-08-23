@@ -2,7 +2,7 @@
 
 **Video**
 
-- [Project FNAF](https://www.youtube.com/watch?v=PL8klvnk8J4)
+- [MUSC 419 Interactive Performance System - FNAF](https://www.youtube.com/watch?v=PL8klvnk8J4)
 
 **Group**
 
