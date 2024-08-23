@@ -1,4 +1,4 @@
-# MUSC-419-Interactive-Performance-System---FNAF
+# MUSC 419 Interactive Performance System - FNAF
 
 **Video**
 
